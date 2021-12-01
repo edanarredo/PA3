@@ -1,1 +1,3 @@
 WILL HIDE THIS REPOSITORY AFTER SUBMITTING...
+
+Notes ref - https://docs.google.com/document/d/1TJCHBYeQtcmixbe3UK7ixc_qP4A_IJ6mXE0TrCD_9DM/edit
